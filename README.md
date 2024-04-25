@@ -1,0 +1,2 @@
+# adit
+buat sekola
